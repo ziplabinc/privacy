@@ -49,4 +49,4 @@ on this page. These changes are effective immediately after they are posted on t
 
 ## Contact Us
 - If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact
-us at [App Contact informations].
+us at contact@zip-lab.co.kr.
